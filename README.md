@@ -222,4 +222,4 @@ GameSpy Arcade is offered as a **full free version** with all features and updat
 Don't miss out on the opportunity to connect with millions of gamers worldwide. **Download GameSpy Arcade FREE today** and elevate your gaming experience!
 
 ---
-**Last updated:** 2026-11-02 10:48:10 UTC
+**Last updated:** 2026-11-02 20:41:44 UTC
